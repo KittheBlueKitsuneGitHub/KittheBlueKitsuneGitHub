@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @KittheBlueKitsuneGitHub
 - 👀 I’m interested in Minecraft Modpack Making
-- 📫 How to reach me: kitthebluekitsuneyt@myyahoo.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I made Anvil Client!
